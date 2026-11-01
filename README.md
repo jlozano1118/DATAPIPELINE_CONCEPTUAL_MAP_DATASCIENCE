@@ -9,6 +9,10 @@ with temporal chaos use. Entonces, en este caso, ¿qué quiero que hagas? Que es
 hazlo bien chévere y ya, no es más. No utilices un estilo, en este caso genérico, sé más creativo, ponlo más bien tipo verde, lo quiero con verde, azul, gris y negro. Lo quiero con esos cuatro colores y más bien de una técnica tipo Ben 10 o Iron Man, tipo futurista.
 Pero pues no vas a poner nada de Ben 10 ni nada de esas vainas. Actúa como un experto en Data Science Fundamentals y diseño gráfico.
 
-100% NATURAL THIS JOB AND IA WAS A COPILOT TO SHOW OF A BETTER FORM THE DESIGN AND IDEAS
+100% NATURAL THIS JOB AND IA WAS A COPILOT TO SHOW OF A BETTER FORM  TO DESIGN AND SHOW IDEAS
 
 https://www.youtube.com/watch?v=1Q7lN_MV-FU LINK ABOUT TOPIC: DATAPIPELINE
+
+TEACHER: SARA FERNANDA SANCHEZ SANCHEZ.
+
+SUBJECT: DATASCIENCE FUNDAMENTALS.
