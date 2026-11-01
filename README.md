@@ -13,6 +13,6 @@ Pero pues no vas a poner nada de Ben 10 ni nada de esas vainas. Actúa como un e
 
 https://www.youtube.com/watch?v=1Q7lN_MV-FU LINK ABOUT TOPIC: DATAPIPELINE
 
-TEACHER: SARA FERNANDA SANCHEZ SANCHEZ.
+PROFESSOR: SARA FERNANDA SANCHEZ SANCHEZ.
 
 SUBJECT: DATASCIENCE FUNDAMENTALS.
